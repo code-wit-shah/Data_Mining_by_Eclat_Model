@@ -1,0 +1,1 @@
+# Data_Mining_by_Eclat_Model
